@@ -1,3 +1,5 @@
+![Image of Yaktocat](https://portablecharger.github.io/images/bestpowerbanks17.jpg)
+
 ## Top Portable Chargers 2017
 
 - Portable chargers review
