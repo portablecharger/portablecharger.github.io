@@ -1,6 +1,4 @@
-
-
-# Top Portable Chargers 2017
+## Top Portable Chargers 2017
 
 - Portable chargers review
 - Comparison table of best power banks
